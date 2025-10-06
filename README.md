@@ -1,1 +1,3 @@
-in progress
+working on 🍈
+
+Developer @ Yale Computer Society
